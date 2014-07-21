@@ -10,3 +10,6 @@ Photography-App
 1. 将相机图片传至ipad
    [淘宝](http://item.taobao.com/item.htm?id=16315927213)
    
+
+
+http://www.cinjing.com/
